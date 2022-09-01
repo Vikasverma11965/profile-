@@ -1,2 +1,3 @@
 # profile-
-Anything 
+PUSH YOURSELF 
+. BECAUSE NO ONE ELSE IS GOING TO DO IT FOR YOU 
